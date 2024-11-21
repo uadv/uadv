@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on blender addon projects or if anyone has a good automation solution for anything I'd be more than happy to help out
 - 📫 How to reach me Discord: 'adzy_g'
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have a boyfriend that lives in Indiana, I sell furry clothing and work at Amazon part time. Not very fun facts but still lol
+- ⚡ Fun fact: I have a boyfriend that lives in Indiana, I sell virtual furry clothing and work at Amazon part time. Not very fun facts but still lol
