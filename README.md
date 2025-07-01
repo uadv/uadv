@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @uadv but you can call me Adzy
-- 👀 I’m interested in Automation, 3D Modelling, Sculpting and Texturing
-- 🌱 I’m currently learning python and would like to learn more about how to program machines and software for automation speficically
-- 💞️ I’m looking to collaborate on blender addon projects or if anyone has a good automation solution for anything I'd be more than happy to help out
-- 📫 How to reach me Discord: 'adzy_g'
+- 👀 I’m interested in accessibility, problem solving, data visualisation, kickboxing, sculpting and some chess.
+- 🌱 I’m currently learning back end and data visualisation.
+- 📫 How to reach me Discord: 'adzyrama'
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have a boyfriend that lives in Indiana, I sell virtual furry clothing and work at Amazon part time. Not very fun facts but still lol
